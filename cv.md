@@ -1,4 +1,4 @@
-![Avatar](https://github.com/Tata777k/rsschool-cv/blob/gh-pages/avvvva.jpg?raw=true"Hi!") 
+![Avatar](https://github.com/Tata777k/rs_school-cv/blob/gh-pages/ava2.jpg) 
 
 # Kosareva Tatyana
 ***
