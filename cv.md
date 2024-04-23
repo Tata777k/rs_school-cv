@@ -1,3 +1,4 @@
+
 ![Avatar](https://github.com/Tata777k/rs_school-cv/blob/gh-pages/ava2.jpg) 
 
 # Kosareva Tatyana
